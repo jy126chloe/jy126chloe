@@ -5,5 +5,4 @@
 💬 Ask me about how to find the best bagel shop
 📫 How to reach me: jingeyao@usc.edu
 😄 Pronouns: she/her/hers
- ⚡ Fun fact: 
 
