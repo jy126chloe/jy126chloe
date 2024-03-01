@@ -1,4 +1,4 @@
-### Welcome to Chloe Yao's GitHub
+##### Welcome to Chloe Yao's GitHub
 
 💼 I’m an aspiring UX designer with strong research and analytical skills  
 🍀 I’m currently studying communication and data science @ USC  
