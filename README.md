@@ -1,4 +1,4 @@
-# Welcome to Chloe's GitHub
+# Welcome to Chloe's GitHub👏
 
 💼 I'm an aspiring UX designer equipped with a robust foundation in data analysis  
 🍀 I’m currently studying communication and data science @ USC  
